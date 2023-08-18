@@ -21,3 +21,5 @@
 6. Incorporate Pumpkin: Stir in the pumpkin puree to the risotto, mixing it well to create a rich and creamy texture.
 7. Add Sage: Fold in the chopped sage leaves, reserving a few for garnish.
 8 Finish and Season: If using, stir in the grated Parmesan cheese to add creaminess to the risotto. Season with salt and pepper to taste. Keep in mind that the cheese will also add saltiness.
+
+Serves 4-6
