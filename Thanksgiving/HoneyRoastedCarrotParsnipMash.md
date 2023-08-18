@@ -15,3 +15,5 @@
 3. Roast the carrots and parsnips in the preheated oven for about 25-30 minutes or until they are tender and caramelized. You can flip them halfway through the roasting time for even caramelization.
 4. Once the roasted carrots and parsnips are done, transfer them to a mixing bowl. Add the butter (or olive oil) to the warm vegetables. Use a potato masher or a fork to mash the vegetables until you achieve your desired level of smoothness. If you prefer a chunkier texture, mash them less; for a smoother texture, mash more.
 5. Taste the mash and adjust the seasoning with more salt and pepper, if needed.
+
+Serves 4-6
