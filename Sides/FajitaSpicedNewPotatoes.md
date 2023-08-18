@@ -18,4 +18,3 @@ Cooking
 4. Bake for 60 minutes
 
 Serves 4-5
-[Kinders Fajita Blend](https://github.com/mahldcat/recipes/assets/1320535/afd752b4-6d5e-4407-bd89-b026085d6451)
