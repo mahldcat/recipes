@@ -1,4 +1,4 @@
-# Pumpkin Sage Risotto:
+# Pumpkin Sage Risotto
 
 ## Ingredients:
 * 2 cups Arborio rice
